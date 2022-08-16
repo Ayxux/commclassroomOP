@@ -5,4 +5,4 @@
 - I love MLH
 - More power to kunal. love the work which your are doing for the community.
 - Anirudh Sharma finds the Community Classroom initiative really great!
-Ayush Maity finds the Community Classroom initiative extremely helpful for beginners!
+- Ayush Maity finds the Community Classroom initiative extremely helpful for beginners!
